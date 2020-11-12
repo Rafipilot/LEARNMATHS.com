@@ -1,1 +1,1 @@
-# our homeschooling jouerny
+# our homeschooling journey
